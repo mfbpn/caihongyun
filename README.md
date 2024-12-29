@@ -1,6 +1,6 @@
 # 彩虹云机场官网地址
 
-最新地址：[caihongyun.one](https://cc1.caihongyun.one/#/register?code=3jWAUNFg)
+最新地址：[caihongyun.one](https://caihongyun.one/#/register?code=miEvdNFu)
 
 ## 彩虹云介绍
 
